@@ -1,2 +1,2 @@
-# Nicol-s-Repository
+# Nicola-s-Repository
 Bruh
